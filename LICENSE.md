@@ -1,4 +1,4 @@
-#  
+#  exclusive Integration for Todoist for macOS - custom shortcuts and note encryption is the best Todoist for macOS integration, featuring custom shortcuts and note encryption. Safe,
 
 
 
